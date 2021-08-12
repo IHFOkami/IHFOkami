@@ -4,13 +4,6 @@
 - 💞️ I’m looking to collaborate on any kind of project i can
 - 📫 How to reach me: by email! ionara.ferraz@fatec.sp.gov.br
  
-<p>   .---.        .-----------</br>
-     /     \  __  /    ------</br>
-    / /     \(  )/    -----</br>
-   //////   ' \/ `   ---</br>
-  //// / // :    : ---</br>
- // /   /  /`    '--</br>
-//          //..\\</br>
-       ====UU====UU====</br>
-           '//||\\`</br>
-             ''``</br></p>
+<p>  /\_/\</br>
+    ( o.o )</br>
+     > ^ < </br>
